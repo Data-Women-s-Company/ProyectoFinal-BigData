@@ -32,3 +32,6 @@ Sandra Julieth o para nosotras July, es licenciada en sociología y python. Su p
 Elsa está titulada en lingüismo y como apasionada de las letras es políglota. También ha trabajado como profesora y es altamente resolutiva.
 
 Mireia está cualificada en administración y dirección de empresas, finanzas y trading. Es una mujer creativa y muy polivalente.
+
+
+[Enlace a la presentación del proyecto final](https://www.canva.com/design/DAFaFBw0QbU/_oTYJE7fs68TSfVprjZx9w/watch?utm_content=DAFaFBw0QbU&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
